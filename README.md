@@ -8,4 +8,4 @@ Cut the Transparency V7 file from the plastic film.
 
 Use 1/16" or 1/8" Shock Cord for the strap.  Cut to 20".  Thread through the holes on the brackets and tie off with a knot.  
 
-Strap adjusters are a nice feature- these were cut from 1/32" (0.8mm) Polypropylene Sheet.
+Strap adjusters are a nice feature- these were cut from 1/32" (0.8mm) Polypropylene Sheet.  Thread the 1/16" cord through the adjuster before tying off on the bracket.  Modify the size of the holes to fit whichever cord you are using.
